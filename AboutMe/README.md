@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LatteCappuchino
+- 👀 I’m interested in Learning LuaU
+- 🌱 I’m currently learning LuaU
+- 💞️ I’m looking to collaborate on Learning LuaU
+- 📫 How to reach me Honorx8user@gmail.com
+- 😄 Pronouns: latte/cappuchino
+- ⚡ Fun fact: i exploit on a lego game!
